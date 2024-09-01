@@ -1,0 +1,1 @@
+# trategy-no.1
